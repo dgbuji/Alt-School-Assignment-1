@@ -1,1 +1,1 @@
-Alt school assignment sbmission.
+Alt school assignment submission.
